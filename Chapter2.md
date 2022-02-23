@@ -5,10 +5,6 @@ asfeasefasefasef
 asfasefasefase
 fasefasefas
 
-raerfaserasefasfefse
-asfeasefasefasef
-asfasefasefase
-fasefasefasraerfaserasefasfefse
 asfeasefasefasef
 asfasefasefase
 fasefasefasraerfaserasefasfefse
